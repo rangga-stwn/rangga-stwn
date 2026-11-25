@@ -24,4 +24,4 @@ I'm a Computer Science graduate focusing on **Data Analytics**. I enjoy turning 
 
 ### Connect With Me
 - **GitHub:** [github.com/rangga-stwn](https://github.com/rangga-stwn)
-- **LinkedIn:** *(ganti dengan link profil LinkedIn kamu)*
+- **LinkedIn:** (https://www.linkedin.com/in/rangga-setiawan?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
